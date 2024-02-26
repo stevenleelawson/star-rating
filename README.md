@@ -1,4 +1,5 @@
 
+<img width="660" alt="Screenshot 2024-02-25 at 7 45 07 PM" src="https://github.com/stevenleelawson/star-rating/assets/16749135/2f295e6d-009f-420a-835d-02a208e58feb">
 
 
 
